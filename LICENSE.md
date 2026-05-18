@@ -1,4 +1,4 @@
-# 
+# Inteligente DaVinci Resolve para PC executor é o melhor DaVinci Resolve para PC executor com ferramentas de colaboração e edição multifaixa. Seguro, confiável e otimizado para
 
 
 
